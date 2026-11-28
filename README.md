@@ -40,6 +40,6 @@ You don't need a dashboard. You need 2 exports and 25 minutes.
 
 - More free training: https://ekaistone.com/training
 - If the numbers show your offers are the problem, get the free Offer Ladder Map at https://ekaistone.com/training
-- Want to talk it through? Strategy Call, $750: https://ekaistone.com/strategy-session
+- Want to talk it through? Strategy Session, $750: https://ekaistone.com/strategy-session
 
 Free to use. (c) Jupiter Revenue Systems. Don't resell.
